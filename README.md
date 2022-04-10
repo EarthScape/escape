@@ -18,4 +18,4 @@ Amid the reflections on a still pond I caught the flicker of a silvery tail and 
 
 A little glimmer of an idea slowly began enveloping me as I listened to the soft sounds of Spring.
 
-Captured, now [follow me](https://www.facebook.com/deana.meana)
+Captured, [Follow](https://www.facebook.com/deana.meana)
